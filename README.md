@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... code
 - 🌱 I’m currently learning ... code
 - 💞️ I’m looking to collaborate on ... code
-- 📫 How to reach me ... urielias7k@gmail.com
+- 📫 How to reach me ... joriolelias@gmail.com
